@@ -1,1 +1,1 @@
-Owner gay
+Owner is straight
